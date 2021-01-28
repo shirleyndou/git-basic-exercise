@@ -1,1 +1,0 @@
-Strawberry, vanilla, chocolate
